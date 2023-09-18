@@ -5,6 +5,7 @@
 - 1 3/4 cups granulated sugar
 - 3/4 cup unsweetened cocoa powder
 - 1/2 tsp ground cinnamon
+- a pinch of salt to taste
 - ...
 
 ## Instructions:
